@@ -1,0 +1,17 @@
+---
+created: 2023-11-22T21:51
+updated: 2023-11-22T21:51
+---
+Starting when I was prepubescent, I was often inescapably drawn into silent reverie of any number of random things, sometimes being self absorbed, but often with the understanding that I was small and insignificant. I also often talk to kids or adults. 
+
+Much of my childhood socialization (and "the good days") came from spending summer breaks and after school hours at the local Boys & Girls Club. I think this was paramount for my growth as a child. 
+
+In contrast, school was often an oppressive environment. Shyness was mandatory to behave properly. The strict topics and lectures felt devoid of meaning and disconnected from the world at large. I wasn't exactly the class clown but I often didn't behave because I just wanted to play and joke with my peers. I was okay with being laughed at, but I also felt terribly embarrassed when teachers would call me out for not paying attention and being made the fool. Occasionally, and much more in high school, I wouldn't meet the expectations inside of class or out regarding homework. This pressure and lack of performance often made me feel foolish. This planted the seed of a slowly blossoming revulsion of formal education. 
+
+I do blame my parents for not being involved enough. I also blame my schools for being so cut off from the rest of the world and rarely having any kind of field trips. Privileged though I was never going without food, school supplies or fear of crime in my neighborhood, I believe my childhood would be exponentially improved by inexpensive visits to nature, and perhaps expensive visits to institutions of science, like museums or exploratoriums. No, my childhood consisted of a shuttling network from building to building, with sparse outside time apart from skateboarding around my neighborhood, annual camping trips and thankfully, the Boys & Girls club.
+
+At the Boys & Girls Club, I was still shy, but more often than not found myself outgoing, depending on who was around. I generally trusted adults and kids alike but was more open to curiosity, and thus myself, around adults. Many of the grown-up 20s aged child-wranglers would attempt to answer my bombardment of questions. I remember growing to love some of them  after hanging out with them day after day for months, some even years. These few grown-ups, young though they were, treated me with respect gave me confidence to socialize. I learned to continue asking any kind of question, and to learn by listening, a seed planted early enough for feel the rewards blossoming through the rest of my life to this day. At the Boys and Girls club I could vibrate between socializing and playing video games at the computer lab. Even there, in the underground dungeon, located through the administrative offices, I was social. We could use the LAN to play StarCraft together, oh boy did we.
+
+Some of the child-wranglers were (I'm being gender agnostic) assholes (not to shit-talk assholes, which are lovely things and deserve a good washing up with a bidet to remain as lovely as they ought to be). These few did not make kids feel more free to express themselves, but instead fearful and afraid to speak up or act. I know that is most certainly not what I wish to be when I'm around people, adults or kids alike.
+ 
+I didn't have first hand experiences with death as a kid, apart from my grandmother when I was in middle school, but I did believe a persons life was over when death came. They no longer existed as a conscious entity, and that is still scary. 
